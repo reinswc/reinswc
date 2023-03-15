@@ -1,5 +1,5 @@
 # 💫 About Me:
-💡 I'm currently working on my Skills.<br>👨🏻‍💻 I'm currently learning more about Cyber-Security Development.<br>🎯 I'm looking for help with Exploring New Technologies<br>📬 Ask me about any tech-related stuff.<br>📨 How to reach me : Email- reinsec1337@gmail.com<br>
+💡 I'm currently working on my Skills.<br>👨🏻‍💻 I'm currently learning more about Cyber-Security Researcher.<br>🎯 I'm looking for help with Exploring New Technologies<br>📬 Ask me about any tech-related stuff.<br>📨 How to reach me : Email- reinsec1337@gmail.com<br>
 
 
 ## 🌐 Socials:
